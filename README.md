@@ -5,5 +5,5 @@ Working on this when i have time pls follow me if ya wanna <3
 
 
 
+<img width="736" height="615" alt="Untitled176_20260421161313" src="https://github.com/user-attachments/assets/e9deba59-d519-4d14-a204-ea93c16ba96c" />
 
-<img width="736" height="615" alt="Untitled176_20260421154608" src="https://github.com/user-attachments/assets/d7a9b82e-f2d3-475c-a646-18718821d49d" />
