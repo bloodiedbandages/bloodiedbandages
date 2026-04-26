@@ -1,6 +1,6 @@
 
 
-readme is still a wip : <img width="20" height="20" alt="MBXRMWM" src="https://github.com/user-attachments/assets/99da5617-337f-44b1-8407-c237d2c180d6" />
+lazy readme hiii uh: <img width="20" height="20" alt="MBXRMWM" src="https://github.com/user-attachments/assets/99da5617-337f-44b1-8407-c237d2c180d6" />
 
 
 <img width="690" height="323" alt="Untitled175_20260420185454_polarr" src="https://github.com/user-attachments/assets/bd917b8d-6b39-4a5d-8310-cc97039ec1cf" /> 
@@ -20,7 +20,7 @@ readme is still a wip : <img width="20" height="20" alt="MBXRMWM" src="https://g
 
 
 
-https://rikiiyukisverison.straw.page/
+[Straw](https://rikiiyukisverison.straw.page/)
 
 
 
